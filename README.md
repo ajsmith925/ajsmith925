@@ -12,9 +12,9 @@
 
 👨‍💻 I enjoy contributing to **Open Source Projects** and have contributed to a couple large Organizations. I am really enthusiastic about constantly learning new technology.
 
-🦾 Also interested in Crypto, DApps, AI, and ML (next on the list to learn!)
+🦾 Also interested in Crypto, DApps, AI, and ML.
 
-🌱 Outside the world of tech too, I enjoy pushing myself to develop new skills. My hobbies range from **being outdoors and backpacking**, **fitness & sports (climbing, basketball,snowboarding, etc)**, **traveling**, and **trying new things** but doing anything or nothing with my fiance trumps them all! 
+🌱 Outside the world of tech too, I enjoy pushing myself to develop new skills. My hobbies range from **being outdoors and backpacking**, **fitness & sports (climbing, basketball,snowboarding, etc)**, **traveling**, and **trying new things** but **doing anything or nothing with my fiance** trumps them all! 
 
 🧘‍♂️ I also love meditating, reading books, & personal development. One percent better every day compounds greatly!
 
